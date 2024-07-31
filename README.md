@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SaniyaFurtado-PM
-- 👀 I’m interested in Product management
+- 👀 I’m interested in Product Management
 - 📫 How to reach me - saniya.furtado@zeepup.com
 - 😄 Pronouns: She/her
 
